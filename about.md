@@ -26,7 +26,6 @@ My life influences include:
   - Cheating and Deception in the animal and human worlds
 - Living in the UK through the time of Brexit
 
-
 Themes in work that have influenced my thinking:
 
 - In design, the trading off of different goals or metrics
@@ -40,11 +39,3 @@ Books that have strongly influenced me recently:
 
 - [The Elephant in the brain](http://elephantinthebrain.com) by Robin Hanson and Kevin Simler
 - [The Square and the Tower](http://elephantinthebrain.com) by Niall Ferguson 
-
-
-Podcasts I listen to avidly:
-
-- [The Long Now](https://blog.longnow.org) seminars
-- [Making Sense by Sam Harris](https://samharris.org/podcast)
-- About 30% of guests on [Joe Rogan](http://podcasts.joerogan.net)
-- [Odd lots by Bloomberg](https://www.bloomberg.com/podcasts/odd_lots)
